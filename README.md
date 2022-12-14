@@ -4,4 +4,6 @@
 ![CamScanner 12-13-2022 20 05_page-0001](https://user-images.githubusercontent.com/105565683/207480580-5b1dc94d-cd07-43b7-a217-3b4c2b37c10f.jpg)
 ![CamScanner 12-13-2022 20 05_page-0002](https://user-images.githubusercontent.com/105565683/207480639-710bde98-90df-4387-81ed-6d8e45018014.jpg)
 ![CamScanner 12-13-2022 20 05_page-0003](https://user-images.githubusercontent.com/105565683/207480650-9f76b7df-7d6e-4691-8b25-acf16f007a5c.jpg)
+![b_page-0001](https://user-images.githubusercontent.com/105565683/207482296-5bf570cd-3cf4-4dd3-9ecd-a9658fd7fabb.jpg)
+![b_page-0002](https://user-images.githubusercontent.com/105565683/207482323-3389a6e6-e67d-4907-ac0d-13bfa46f9c76.jpg)
 
