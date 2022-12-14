@@ -6,4 +6,5 @@
 ![CamScanner 12-13-2022 20 05_page-0003](https://user-images.githubusercontent.com/105565683/207480650-9f76b7df-7d6e-4691-8b25-acf16f007a5c.jpg)
 ![b_page-0001](https://user-images.githubusercontent.com/105565683/207482296-5bf570cd-3cf4-4dd3-9ecd-a9658fd7fabb.jpg)
 ![b_page-0002](https://user-images.githubusercontent.com/105565683/207482323-3389a6e6-e67d-4907-ac0d-13bfa46f9c76.jpg)
+![b_page-0002](https://user-images.githubusercontent.com/105565683/207482722-8b09c1d1-80c1-42da-a441-b1ef36cabb12.jpg)
 
